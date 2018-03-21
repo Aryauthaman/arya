@@ -3,3 +3,4 @@
 d
 idiot girl
 iam a good girl
+aaru paranjuuu 
